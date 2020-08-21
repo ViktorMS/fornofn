@@ -1,0 +1,2 @@
+# fornofn
+Íslensk fornöfn
